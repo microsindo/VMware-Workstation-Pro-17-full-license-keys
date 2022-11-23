@@ -1,7 +1,7 @@
 # VMware-Workstation-Pro-17-full-license-keys
 
 
-Official Link Doenload
+Official Link Download
 https://www.vmware.com/products/workstation-pro/workstation-pro-evaluation.html
 
 Volume Licensed Key No expiration
